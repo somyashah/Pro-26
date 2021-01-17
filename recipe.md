@@ -1,0 +1,11 @@
+first grind the biscuits into powder;
+ let the milk come at room temperature;
+then take the coco-powder;
+mix the coco-powder and the milk;
+after that add sugar to taste and a pinch of baking powder;
+mix it well so that there are no lumps;
+now grease the mould with ghee;
+now put the better into the mould;
+when the oven is preheated at 180 degree;  
+put the mould in the oven for around 5 to 6 minutes;
+the chocolate cake is ready;
